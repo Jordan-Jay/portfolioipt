@@ -4,4 +4,4 @@
 
 ## -- Please note --
 
-All images on this website are free use.
+All images on these websites are free use.
